@@ -6,4 +6,4 @@ Also star it haha, never know when I am going to add stuff
 
 https://drive.google.com/drive/folders/1dWXpF07oXsRIq3HXHu1H63rQw0KIk-Jz?usp=sharing : some trainging boxes 
 
-I am mostly working in vulnerability reserach and do very litte blue team work now so I don't think I am very helpful contact but feel free to join https://discord.gg/
+I am mostly working in vulnerability reserach and do very litte blue team work now so I don't think I am very helpful contact but feel free to join [https://discord.gg/](https://discord.gg/E7pcMSay)
